@@ -1,5 +1,3 @@
 # practice1
-euiwuehwh
-2638982793
-dsjlkshdkh
-nadsn
+
+I am trying to learn
